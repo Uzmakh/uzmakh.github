@@ -1,1 +1,1 @@
-# uzmakh.github
+# uzmakh.github.io
